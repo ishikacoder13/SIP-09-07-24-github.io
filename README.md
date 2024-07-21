@@ -20,6 +20,7 @@ He is the one who told us about having the new perspective of life . He focused 
      * PFA
      * Causmic Club
      * ITIAN Club
+  
 ***Upcoming Events :-***  
   * Hack@GNE3.0
   * Ideathon 
