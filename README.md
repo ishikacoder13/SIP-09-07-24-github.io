@@ -28,4 +28,7 @@ He is the one who told us about having the new perspective of life . He focused 
    * Addressing 3 SDG's
   * Solar Vehicle Challenge
 
+* Later, he ended his session by giving 3 P's of Success in Enterpreneurship :-
+   
+
 
