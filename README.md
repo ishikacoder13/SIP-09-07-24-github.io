@@ -19,8 +19,8 @@ He is the one who told us about having the new perspective of life . He focused 
      * Parwaaz Club
      * PFA
      * Causmic Club
-     * ITIAN Club
-***Upcoming Events :-***  
+     * ITIAN Club  
+  ***Upcoming Events :-***  
   * Hack@GNE3.0
   * Ideathon 
   * Creativelo Challenge 
