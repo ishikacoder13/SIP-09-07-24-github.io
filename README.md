@@ -29,6 +29,9 @@ He is the one who told us about having the new perspective of life . He focused 
   * Solar Vehicle Challenge
 
 * Later, he ended his session by giving 3 P's of Success in Enterpreneurship :-
+  
+  ![3P's for success](https://github.com/user-attachments/assets/d1b5485d-b937-43f2-8358-6ab2fd391fbc)
+
    
 
 
